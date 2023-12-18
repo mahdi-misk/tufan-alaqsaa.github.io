@@ -1,1 +1,0 @@
-# tufan-alaqsaa.github.io
